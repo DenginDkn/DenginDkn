@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Dengin Diken
 - 👀 I’m interested in Software Languages and Coding.
-- 🌱 I’m currently learning Software Engineering i Yasar University
+- 🌱 I’m currently learning Software Engineering at Yasar University
 - 💞️ I’m looking to learn different Software Languages.
 - 📫 How to reach me 
 - Instagram : https://www.instagram.com/dengin.dkn/
