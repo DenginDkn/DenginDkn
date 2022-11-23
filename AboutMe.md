@@ -5,4 +5,4 @@
 - 📫 How to reach me 
 - Instagram : https://www.instagram.com/dengin.dkn/
 - LinkedIn  : https://www.linkedin.com/in/dengin-diken-ba6a081a1/
-- E-mail    : d.dikennn@gmail.com
+- E-mail    : dengindiken88@gmail.com
