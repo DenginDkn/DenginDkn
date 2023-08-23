@@ -4,5 +4,5 @@
 - 💞️ I’m looking to learn different Software Languages.
 - 📫 How to reach me 
 - Instagram : https://www.instagram.com/dengin.dkn/
-- LinkedIn  : https://www.linkedin.com/in/dengin-diken-ba6a081a1/
+- LinkedIn  : https://www.linkedin.com/in/dengin-diken/
 - E-mail    : dengindiken88@gmail.com
