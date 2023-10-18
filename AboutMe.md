@@ -6,4 +6,4 @@
 - Instagram : https://www.instagram.com/dengin.dkn/
 - LinkedIn  : https://www.linkedin.com/in/dengin-diken/
 - E-mail    : dengindiken88@gmail.com
-- Personal Website   : dengindiken.com
+- Personal Website   :  https://www.dengindiken.com
